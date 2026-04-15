@@ -12,7 +12,7 @@ Businesses that buy EPE foam packaging rely on its ability to safeguard products
 
 ### Key Features
 
-- उत्कृष्ट shock absorption and cushioning  
+- shock absorption and cushioning  
 - Lightweight and flexible material  
 - Moisture-resistant properties  
 - Non-abrasive surface protection  
